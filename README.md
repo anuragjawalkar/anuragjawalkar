@@ -18,8 +18,8 @@ My goal is to settle well in life, secure a good job, manage finances, gain 1-2 
 Friendly yet professional, I appreciate clear, concise communication and prefer using English in a professional context.
 
 ## How to Reach Me
-- **LinkedIn:** [YourLinkedInProfileLink](https://www.linkedin.com/in/anuragjawalkar/)
-- **Email:** anuragjawalkar@gmail.com
+- **LinkedIn:** [@anuragjawalkar](https://www.linkedin.com/in/anuragjawalkar/)
+- **Email:** [email](anuragjawalkar@gmail.com)
 
 ## Fun Fact
 I enjoy taking a strategic problem-solving approach and welcome innovative ideas that challenge conventional tech industry approaches.
